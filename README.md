@@ -3,7 +3,12 @@
 </a><br><br>
 
 <a href="https://github.com/elevanceit" target="_blank"><img width="100%" src="./images/hero_0.5.png"></a>
-
+[**[Hire A Talent](https://tally.so/r/3lldZB)**]
+[**[Request A Quote](https://tally.so/r/3lldZB)**]
+[**[Find A Job](https://tally.so/r/3j9Qza)**] \_\_\_
+[**[For Companies](https://tally.so/r/3lldZB)**]
+[**[For Developers](https://tally.so/r/3j9Qza)**]
+[**[For Contributors](https://tally.so/r/mex21q)**]
 
 ---
 
